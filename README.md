@@ -10,7 +10,7 @@
 
 [David J. Thomas](mailto:dave.a.base@gmail.com), [thePortus.com](http://thePortus.com)<br />
 Instructor of Ancient History and Digital Humanities<br />
-Department of History<br />
+Department of History Bitches<br />
 [University of South Florida](https://github.com/usf-portal)
 
 ## Textbook
